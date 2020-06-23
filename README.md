@@ -1,5 +1,5 @@
-<h1 align="center">https://nivithavarghees.github.io/Blog/</h1>
+<h1 align="center">https://deepamerlin.github.io/Blog/</h1>
 
 ---------------------------------------
 
-<h2 align="center">Profilo Link:- https://nivithavarghees.github.io/Blog/ <h2>
+<h2 align="center">Profilo Link:- https://deepamerlin.github.io/Blog/ <h2>
